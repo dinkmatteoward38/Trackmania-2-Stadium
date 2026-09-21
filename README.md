@@ -230,4 +230,4 @@ TrackMania 2 Stadium is available as a full free version, providing you access t
 Get ready to hit the tracks and experience the speed in TrackMania 2 Stadium! Download now and unleash your inner racer!
 
 ---
-**Last updated:** 2026-09-21 05:39:53 UTC
+**Last updated:** 2026-09-21 11:27:01 UTC
